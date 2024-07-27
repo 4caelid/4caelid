@@ -2,7 +2,7 @@
 - 👀 I’m interested in nothing
 - 🌱 I’m currently learning nothing
 - 💞️ I’m looking to collaborate on nothing
-- 📫 How to reach me, don't
+- 📫 How to reach me, don't (if you really want to for some reason 4caelid on discord)
 - 😄 Pronouns: nothing
 - ⚡ Fun fact: there are no fun facts
 
